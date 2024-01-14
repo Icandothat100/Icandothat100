@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ Venkatesh
+- 👀 I’m interested in Learning New Things Regarding Technology, and Explore the Nature
+- 🌱 I’m currently learning Electrical Vehicle Course
+- 💞️ I’m looking to collaborate on Any One. It might be Useful For Us
+- 📫 How to reach me venkatesh213v@outlook.com
+- 👨‍🔧 Present Working at JSW,Goa
